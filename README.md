@@ -1,5 +1,5 @@
 # AboutMe
-|
+
 # Caitlin Murphy
 
 Obtain experience in business positions, particularly finance. |
